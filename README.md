@@ -6,7 +6,7 @@
 Here are some ideas to get you started: -->
 
 - 🍞 I’m currently working on: getting bread 
-- 🌱 I’m currently learning: Git, PBC design, PID controllers!
+- 🌱 I’m currently learning: Git, PCB design, PID controllers!
 - 👯 I’m looking to collaborate on: Making some cool electronics! 
 - 🤔 I’m looking for help with: being confident
 - ✨ Ask me about: Playing the bass, being vegetarian, yoga
