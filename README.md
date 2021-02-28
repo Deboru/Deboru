@@ -11,6 +11,6 @@ Here are some ideas to get you started: -->
 - 🤔 I’m looking for help with: being confident
 - ✨ Ask me about: Saturated fat, being vegetarian, yoga
 - 📫 How to reach me: yelling real loud / email deblin0118@gmail.com
-- 👒 Pronouns: she/her/whatever ❤
+- 👒 Pronouns: she/her ❤
 - ⚡ Fun fact: I do digital art! instagram @\_efnm_
 
