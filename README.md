@@ -5,12 +5,12 @@
 
 Here are some ideas to get you started: -->
 
-- 🔭 I’m currently working on: getting bread 
+- 🍞 I’m currently working on: getting bread 
 - 🌱 I’m currently learning: Git, PBC design, PID controllers!
 - 👯 I’m looking to collaborate on: Making some cool electronics! 
 - 🤔 I’m looking for help with: being confident
-- ✨ Ask me about: Saturated fat
-- 📫 How to reach me: yelling real loud
+- ✨ Ask me about: Saturated fat, being vegetarian, yoga
+- 📫 How to reach me: yelling real loud / email deblin0118@gmail.com
 - 👒 Pronouns: she/her/whatever ❤
-- ⚡ Fun fact: I do digital art! 
+- ⚡ Fun fact: I do digital art! instagram @_efnm_
 
