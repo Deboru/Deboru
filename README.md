@@ -9,7 +9,7 @@ Here are some ideas to get you started: -->
 - 🌱 I’m currently learning: Git, PBC design, PID controllers!
 - 👯 I’m looking to collaborate on: Making some cool electronics! 
 - 🤔 I’m looking for help with: being confident
-- ✨ Ask me about: Playin the bass, being vegetarian, yoga
+- ✨ Ask me about: Playing the bass, being vegetarian, yoga
 - 📫 How to reach me: yelling real loud / email deblin0118@gmail.com
 - 👒 Pronouns: she/her ❤
 - ⚡ Fun fact: I do digital art! instagram @\_efnm_
