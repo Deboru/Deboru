@@ -12,5 +12,5 @@ Here are some ideas to get you started: -->
 - ✨ Ask me about: Saturated fat, being vegetarian, yoga
 - 📫 How to reach me: yelling real loud / email deblin0118@gmail.com
 - 👒 Pronouns: she/her/whatever ❤
-- ⚡ Fun fact: I do digital art! instagram @_efnm_
+- ⚡ Fun fact: I do digital art! instagram @\_efnm_
 
